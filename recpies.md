@@ -1,0 +1,1 @@
+Pour hot  water in a cup, add coffee in it and stir it.
